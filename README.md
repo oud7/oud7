@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning coding 
 - 💞️ I’m looking to collaborate on cybersecurity
-- 📫 How to reach me. This is my email address: wa3d.aridi@hotmail.com
+- 📫 How to reach me. This is my email address: wa3d.aridi@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: '!False' is funny because it is true
 
